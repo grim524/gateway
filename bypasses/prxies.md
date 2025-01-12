@@ -11,3 +11,20 @@
 ### **[rammerhead 🦈]()**
 ##### note: **to those coming from my district, ALL ARE PATCHED.** 
 ##### **dont even bother searching for a working link #nonework**
+
+### **[space 🌌]()**
+
+### **[utopia 🏰]()**
+
+### **[doge 🐶]()**
+
+### **[myandroid 📱]()**
+
+### **[interstellar 🌠]()**
+
+### **[astroid ☄]()**
+
+### **[apponfly trial 🪽]()**
+##### note: **has 15-20 min trial**
+
+### not using any newer prxies due to them becoming inactive more commonly.
