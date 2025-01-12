@@ -28,4 +28,5 @@
 ### **[apponfly trial 🪽]()**
 ##### note: **has 15-20 min trial**
 
-### not using any newer prxies due to them becoming inactive more commonly.
+### not using any newer prxies due to them 
+### becoming inactive more commonly.
