@@ -6,4 +6,7 @@
 ---
 # table of contents for lazy people
 ---
+### **[emerald ❇]()**
 
+### **[rammerhead 🦈]()
+##### **to those coming from my district, ALL ARE PATCHED. dont even bother searching for a working link #nonework**
