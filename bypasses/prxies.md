@@ -9,6 +9,5 @@
 ### **[emerald ❇]()**
 
 ### **[rammerhead 🦈]()**
-##### note: 
-##### **to those coming from my district, ALL ARE PATCHED.** 
+##### note: **to those coming from my district, ALL ARE PATCHED.** 
 ##### **dont even bother searching for a working link #nonework**
