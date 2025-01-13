@@ -60,7 +60,6 @@ https://emerald.joaopedroreis.com/   <br>
  https://totallynotnettleweb.embeddedonline.org/   <br> 
 https://prosper.cant.stop.me.rugeleychessclub.co.uk/   <br> 
 https://prosper.cant.stop.me.judysart.com/   <br> 
-**Dec 25 Links**: <br>
 https://emsz.atelierbellessere.it/   <br>
 https://mathtest.uhaneingenieria.mx/   <br>
 https://theohasrizz.eduinnova.cl/   <br>
@@ -77,7 +76,6 @@ https://rizz.copyprint.com.ar/   <br>
 https://babygronk.myers-usa.com/   <br>
 https://bmw.wine-software.com/   <br>
 https://play.this.millersmobilemarine.com/   <br>
-**Nov 24 Links**:  <br>
 https://emerald.emeraldgreen.emeraldblue.emeraldred.emeraldbeige.emeraldtan.com/   <br>
 https://messiistherealgoat.cloudbarfbag.com/   <br>
 https://iamsosigmarizz.cloudbarfbag.com/   <br>
