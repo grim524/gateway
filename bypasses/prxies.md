@@ -371,3 +371,7 @@ https://oapahs.ipv64.net/<br>
 https://vpvvvokegwwvvegexvsgrgrjgeigerigrig.roundrockisd.online/<br>
 https://demo.theoceancleanup.info/<br>
 https://featheryfalcons.fr.to/<br>
+
+### apponfly 🪽 || virtual machine
+#### perma link || stable
+https://app.apponfly.com/trial <br>
