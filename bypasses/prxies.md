@@ -25,7 +25,7 @@
 
 ### **[astroid ☄]()**
 
-### **[apponfly trial 🪽]()**
+### **[apponfly trial 🪽](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#apponfly---virtual-machine)**
 ##### note: **has 15-20 min trial**
 
 ### not using any newer prxies due to them 
