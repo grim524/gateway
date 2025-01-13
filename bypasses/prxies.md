@@ -103,3 +103,57 @@ https://elahelp2.joaopedroreis.com/   <br>
  https://elahelp9.joaopedroreis.com/   <br>
  https://elahelp10.joaopedroreis.com/   <br>
 <br>
+
+### rammerhead 🦈 || browser prxy
+#### links from dec 25 || stable
+https://gg.mom-dad-wtf-su-s.cstang.hk/     <br>
+https://donatetoafrica.raisepeaceinunity.com/     <br>
+https://help.smartknb.com/     <br>
+https://foundthe.lostgumball.com/     <br>
+https://rammerhead.ageru.malam.or.id/     <br>
+https://4h5ute.24-7.ro/     <br>
+https://hr3u4t.d-n-s.name/     <br>
+https://ijf4u4t.malam.or.id/     <br>
+https://this.is.notenoughdew.com/     <br>
+https://sighihaventmadeoneoftheseinaminutefr.florianschlueter.eu/     <br>
+https://adam.likes.the.burgerbar.cl/     <br>
+https://desmosgraphingsimulatorboiiamongus.novipro.ca/     <br>
+https://mathreview.macgyver.cf/     <br>
+https://gooogleserver-as3.macgyver.cf/     <br>
+https://gooogleserver-as4.macgyver.cf/     <br>
+https://securitycheck-84238.singleton-home.tk/     <br>
+https://ramm-841328.singleton-home.tk/     <br>
+https://misto.singleton-home.tk/     <br>
+https://841238.singleton-home.tk/     <br>
+https://galblease.cisua.tk/     <br>
+https://dicemyicargo.interteh.tk/     <br>
+https://selling.singleton-home.tk/     <br>
+https://travel.frenchconnection.com.br/     <br>
+https://hokkaidotravelguide.raikia.com/     <br>
+https://thisistheonlydomainthatworkssoimauseit.malagafix.com/     <br>
+https://home.wikilegia.at/     <br>
+https://it.8bit.ca/     <br>
+https://schoolwork.norushcharge.com/     <br>
+https://thisistheonlydomainthatworkssoimauseit.malagafix.com/     <br>
+https://homework.datagrid.cl/     <br>
+https://robotics.eduinnova.cl/     <br>
+https://super.vitaldoc.cl/     <br>
+https://help-me.undo.cl/     <br>
+https://sasaki.kichigai.malam.or.id/     <br>
+https://blooket.privatedns.org/     <br>
+https://classroom.jamesonlee.com/     <br>
+https://free.vbucks.beclicked.com/     <br>
+https://free.robux.beclicked.com/     <br>
+https://rh.xiaohosting.store/     <br>
+https://atamagaitaiyoo.malam.or.id/     <br>
+https://dhchcjxh.bestbfs.org/     <br>
+https://news.westindiaquay.com/     <br>
+https://res.cdn.office.net.eduassignmentsui.voorl.com/     <br>
+https://sjhsunblocker.csproject.org/     <br>
+https://small-kids.foxgateway.com/     <br>
+https://sena-and-jacob-yap-too-much.foxgateway.com/     <br>
+https://scienceandmore.spacetechnology.net/     <br>
+https://free.vbucks.generator.networkindia.com/     <br>
+https://i.am.selling.b33r.us/     <br>
+https://free.robux.networkindia.com/     <br>
+ <br>
