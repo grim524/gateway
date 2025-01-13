@@ -23,12 +23,12 @@
 
 ### **[interstellar 🌠](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#interstellar---prxy-games-apps)**
 
-### **[astroid ☄]()**
+### **[astroid ☄](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#astroid---prxy-games-apps--hit-fun-button)**
 
 ### **[apponfly trial 🪽](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#apponfly---virtual-machine)**
 ##### note: **has 15-20 min trial**
 
-### not using any newer prxies due to them 
+### not using any newer *unknown* prxies due to them 
 ### becoming inactive more commonly.
 
 ---
