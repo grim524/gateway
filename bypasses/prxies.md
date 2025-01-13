@@ -7,7 +7,7 @@
 ---
 # table of contents for lazy people
 ---
-### **[emerald ❇]()**
+### **[emerald ❇](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#emerald---prxy-games-apps)**
 
 ### **[rammerhead 🦈]()**
 ##### note: **to those coming from my district, ALL ARE PATCHED.** 
