@@ -19,7 +19,7 @@
 
 ### **[doge 🐶](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#doge---prxy-games-apps)**
 
-### **[myandroid 📱]()**
+### **[myandroid 📱](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#myandroid--android-emulator)**
 
 ### **[interstellar 🌠]()**
 
