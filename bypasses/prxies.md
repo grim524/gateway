@@ -321,3 +321,53 @@ https://jorgeproductions.dyro.net/ <br>
 ### myandroid || android emulator
 #### most likely permanent link || stable
 https://myandroid.org/ <br>
+
+### interstellar ☄ || prxy, games, apps 
+#### links from dec 25 || stable
+https://qcactus.goated.huepfler.com/<br>
+https://jasonkelceishim.minecraft.pe/<br>
+https://bhjxdrxfc.ipv64.net/<br>
+https://hbiew.ipv64.net/<br>
+https://bhuosr.ipv64.net/<br>
+https://ilpphgf.ipv64.net/<br>
+https://sswrhjmn.ipv64.net/<br>
+https://ftdtvj.ipv64.net/<br>
+https://hbdkvhu.ipv64.net/<br>
+https://bhuibv.ipv64.net/<br>
+https://viggbsh.ipv64.net/<br>
+https://bydcs.ipv64.net/<br>
+https://kiohjbh.ipv64.net/<br>
+https://fdfsvbh.ipv64.net/<br>
+https://fvtcxryf.ipv64.net/<br>
+https://gfr6dtyj.ipv64.net/<br>
+https://miphgtct.ipv64.net/<br>
+https://tgdru.ipv64.net/<br>
+https://jjoiug.ipv64.net/<br>
+https://nijldcj.ipv64.net/<br>
+https://gvkgvv.ipv64.net/<br>
+https://ndcfuvr.ipv64.net/<br>
+https://hbvofffr.ipv64.net/<br>
+https://fvnvoeri.ipv64.net/<br>
+https://dfddjn.ipv64.net/<br>
+https://gfgsvhwgz.ipv64.net/<br>
+https://jjoiug.ipv64.net<br>
+https://tgdru.ipv64.net/<br>
+https://miphgtct.ipv64.net/<br>
+https://fvtcxryf.ipv64.net/<br>
+https://sswrhjmn.ipv64.net/<br>
+https://ftdtvj.ipv64.net/<br>
+https://hbdkvhu.ipv64.net/<br>
+https://niovf.ipv64.net/<br>
+https://loitgcth.ipv64.net/<br>
+https://tfiytgfdtdhjh.ipv64.net/<br>
+https://cfjydxh.ipv64.net/<br>
+https://ghstes.ipv64.net/<br>
+https://kujgydd.ipv64.net/<br>
+https://ujtfrdh.ipv64.net/<br>
+https://vftytdestu.ipv64.net/<br>
+https://sfxhkbifd.ipv64.net/<br>
+https://gfgsvhwgz.ipv64.net/<br>
+https://oapahs.ipv64.net/<br>
+https://vpvvvokegwwvvegexvsgrgrjgeigerigrig.roundrockisd.online/<br>
+https://demo.theoceancleanup.info/<br>
+https://featheryfalcons.fr.to/<br>
