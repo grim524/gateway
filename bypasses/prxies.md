@@ -322,7 +322,7 @@ https://jorgeproductions.dyro.net/ <br>
 #### most likely permanent link || stable
 https://myandroid.org/ <br>
 
-### interstellar ☄ || prxy, games, apps 
+### interstellar 🌠 || prxy, games, apps 
 #### links from dec 25 || stable
 https://qcactus.goated.huepfler.com/<br>
 https://jasonkelceishim.minecraft.pe/<br>
@@ -372,7 +372,7 @@ https://vpvvvokegwwvvegexvsgrgrjgeigerigrig.roundrockisd.online/<br>
 https://demo.theoceancleanup.info/<br>
 https://featheryfalcons.fr.to/<br>
 
-### astroid || prxy, games, apps || hit fun button
+### astroid ☄ || prxy, games, apps || hit fun button
 #### older links || varying
 2000+ https://pastebin.com/5pDP2SsS <br>
 more links: https://pastes.io/wkgmzaxgsk <br>
