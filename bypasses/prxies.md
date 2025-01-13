@@ -9,7 +9,7 @@
 ---
 ### **[emerald ❇](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#emerald---prxy-games-apps)**
 
-### **[rammerhead 🦈]()**
+### **[rammerhead 🦈](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#rammerhead---browser-prxy)**
 ##### note: **to those coming from my district, ALL ARE PATCHED.** 
 ##### **dont even bother searching for a working link #nonework**
 
