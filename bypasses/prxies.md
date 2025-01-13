@@ -247,3 +247,73 @@ https://how.arts.mikhailspector.com/    <br>
 https://tests.debate.homebrewology.org/    <br>
 https://world.know.maercloud.com/    <br>
 https://solve.notes.stevenr.net/    <br> <br>
+
+### doge 🐶 || prxy, games, apps
+#### links from dec 25 || stable 
+https://dbjkfjdbffdsg.qualitypoolsboulder.com/ <br>
+ https://etedsfdsf.qualitypoolsboulder.com/ <br>
+https://fgdsjfdfjs.qualitypoolsboulder.com/ <br>
+ https://fhdksjfhdsmxzj.qualitypoolsboulder.com/ <br>
+https://sfdsmfjkdsfgdsj.qualitypoolsboulder.com/ <br>
+https://fdjsfgfdsg.fr.to/ <br>
+https://fdstsdfdg.fr.to/ <br>
+https://gdrggdfgfdsg.fr.to/ <br>
+https://gfdgfdgfg.fr.to/ <br>
+https://gfdgfdgfsd.fr.to/ <br>
+https://ermwhatthesigma.wiki.gd/ <br>
+https://rsdfsdfd.wiki.gd/ <br>
+https://schoolisnotcoolwiki.gd/ <br>
+http://sfdsfdfads.wiki.gd/ <br>
+http://sigmaskibidirizzler.wiki.gd/ <br>
+http://dsfdsfdsf.wiki.gd/ <br>
+http://dsffdsfzsd.wiki.gd/ <br>
+http://fdsfdsdsfs.wiki.gd/ <br>
+http://fdsfdsfdfs.wiki.gd/ <br>
+http://gdfgfdgdfs.wiki.gd/ <br>
+http://fdsfdfd.wiki.gd/ <br>
+https://fdsfadsfds.wiki.gd/ <br>
+https://fdgfdsgfd.wiki.gd/ <br>
+https://dfsdgfdgdsf.wiki.gd/ <br>
+http://bfddsfdsf.wiki.gd/ <br>
+http://fsdfdsfad.wiki.gd/ <br>
+https://fgsdfdsfsd.wiki.gd/ <br>
+https://fdsfsdfds.wiki.gd/ <br>
+https://dsfdsfdsa.wiki.gd/ <br>
+https://dfdssdfds.wiki.gd/ <br>
+https://wake.awiki.org/ <br>
+https://teach.awiki.org/ <br>
+http://schoology.pickens.k12.sc.us.awiki.org/ <br>
+https://learn.awiki.org/ <br>
+http://deadpoolandwolverine.awiki.org/ <br>
+https://soc.masteryourtest.com/ <br>
+http://math.masteryourtest.com/ <br>
+https://learn.masteryourtest.com/ <br>
+http://district.portal.masteryourtest.com/ <br>
+https://edu.masteryourtest.com/ <br>
+http://edu.arrowtechnical.co.uk/ <br>
+http://learn.arrowtechnical.co.uk/ <br>
+http://math.arrowtechnical.co.uk/ <br>
+http://sciece.arrowtechnical.co.uk/ <br>
+http://soc.arrowtechnical.co.uk/ <br>
+https://edu.extend47.com/ <br>
+http://learn.extend47.com/ <br>
+http://learnpage.extend47.com/ <br>
+http://math.extend47.com/ <br>
+http://soc.extend47.com/ <br>
+https://edu.masplenedigitalworld.com/ <br>
+https://i-like-my-cheese-drippy-bruh.masplenedigitalworld.com/ <br>
+https://learn.masplenedigitalworld.com/ <br>
+https://math.masplenedigitalworld.com/ <br>
+https://soc.masplenedigitalworld.com/ <br>
+https://edu.mciahh.org/ <br>
+https://tinko.l5.ca/ <br>
+https://chess.realdeeptech.com/ <br>
+https://learning.fun.iseasy.tw/ <br>
+https://learn.lotusshipping.com/ <br>
+https://lookmax.co.chickenkiller.com/ <br>
+https://micahbanana.chickenkiller.com/ <br>
+https://learning.fun.hosts.name/ <br>
+https://jorgeproductions.dyro.net/ <br>
+https://doge-x-jose-bravo.opticalize.com/ <br>
+https://learn.earthrotation.net/ <br>
+https://jorgeproductions.dyro.net/ <br>
