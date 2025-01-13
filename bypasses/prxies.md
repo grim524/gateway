@@ -13,7 +13,7 @@
 ##### note: **to those coming from my district, ALL ARE PATCHED.** 
 ##### **dont even bother searching for a working link #nonework**
 
-### **[space 🌌]()**
+### **[space 🌌](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#space---prxy-games)**
 
 ### **[utopia 🏰]()**
 
