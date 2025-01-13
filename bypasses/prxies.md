@@ -17,7 +17,7 @@
 
 ### **[utopia 🏰](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#utopia---prxy-games)**
 
-### **[doge 🐶]()**
+### **[doge 🐶](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#doge---prxy-games-apps)**
 
 ### **[myandroid 📱]()**
 
