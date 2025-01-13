@@ -372,6 +372,36 @@ https://vpvvvokegwwvvegexvsgrgrjgeigerigrig.roundrockisd.online/<br>
 https://demo.theoceancleanup.info/<br>
 https://featheryfalcons.fr.to/<br>
 
+### astroid || prxy, games, apps || hit fun button
+#### older links || varying
+2000+ https://pastebin.com/5pDP2SsS <br>
+more links: https://pastes.io/wkgmzaxgsk <br>
+https://www.www.www.obitrani.ipv64.net     <br>
+https://ultraapple.ipv64.net     <br>
+https://eu.adbox-v5.ipv64.net     <br>
+https://www.e.obitrani.ipv64.net     <br>
+https://wwwwwwmw.adbox-v3.ipv64.net     <br>
+https://wwwwww.portal.obitrani2.ipv64.net     <br>
+https://eu.anything-thinking.ipv64.net     <br>
+https://sioraenn.ipv64.net     <br>
+https://as.adbox-v2.ipv64.net     <br>
+https://www.obitrani2.ipv64.net     <br>
+https://birutarou.ipv64.net     <br>
+https://wwwwww.classroom-google-co.ipv64.net     <br>
+https://superapple.ipv64.net     <br>
+https://we.adbox.ipv64.net     <br>
+https://ea.obitrani.ipv64.net     <br>
+https://birutarou.ipv64.net     <br>
+https://anything-thinking.ipv64.net/     <br>
+https://adbox.ipv64.net/     <br>
+https://iloveorocu.ipv64.net/     <br>
+https://anything-thinking.ipv64.net/     <br>
+https://adbox-v7.ipv64.net/     <br>
+https://adbox-v2.ipv64.net/     <br>
+https://adbox-v3.ipv64.net/     <br>
+https://adbox-v4.ipv64.net/     <br>
+https://adbox-v6.ipv64.net/     <br>
+
 ### apponfly 🪽 || virtual machine
 #### perma link || stable
 https://app.apponfly.com/trial <br>
