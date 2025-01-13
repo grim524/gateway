@@ -219,3 +219,31 @@ https://spacelinksfor.divan-price.ru/         <br>
 https://perfect.saturdaynitespecial.ca/        <br>
 https://skyzone.radarvision.co.za/        <br>
 <br>
+
+### utopia 🏰 || prxy, games
+#### links from dec 25 || stable
+https://guide.edu.bdeuronews.com/    <br>
+http://brain.major.uniteourdollar.com/    <br>
+https://lob.artsjungbrewing.org/    <br>
+https://guide.recap.whiteley.org/    <br>
+http://topic.prep.timnkim.com/    <br>
+https://school.smart.ikea-bistro.com/    <br>
+https://tasks.tech.eth2.net/    <br>
+https://world.level.anatomyplus.net/    <br>
+https://plant.history.tunasworld.com/    <br>
+https://field.minds.thinkerclub.net/    <br>
+https://craft.words.gy-xs.com/    <br>
+https://school.study.shasai.net/    <br>
+https://level.field.p2pyramid.com/    <br>
+http://learn.utopia.forgottenages.com/    <br>
+https://tutor.minds.krystaltek.com/    <br>
+https://write.state.nickbertrand.com/    <br>
+https://paper.bio.art-motel.com/    <br>
+https://ideas.math.fherdom.com/    <br>
+https://quiz.course.infodale.com/    <br>
+https://tutor.field.tinyatom.net/    <br>
+https://level.music.skydivesergio.com/    <br>
+https://how.arts.mikhailspector.com/    <br>
+https://tests.debate.homebrewology.org/    <br>
+https://world.know.maercloud.com/    <br>
+https://solve.notes.stevenr.net/    <br> <br>
