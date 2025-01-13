@@ -15,7 +15,7 @@
 
 ### **[space 🌌](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#space---prxy-games)**
 
-### **[utopia 🏰]()**
+### **[utopia 🏰](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#utopia---prxy-games)**
 
 ### **[doge 🐶]()**
 
