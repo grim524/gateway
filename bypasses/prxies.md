@@ -317,3 +317,7 @@ https://jorgeproductions.dyro.net/ <br>
 https://doge-x-jose-bravo.opticalize.com/ <br>
 https://learn.earthrotation.net/ <br>
 https://jorgeproductions.dyro.net/ <br>
+
+### myandroid || android emulator
+#### most likely permanent link || stable
+https://myandroid.org/ <br>
