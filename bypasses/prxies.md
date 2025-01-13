@@ -21,7 +21,7 @@
 
 ### **[myandroid 📱](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#myandroid--android-emulator)**
 
-### **[interstellar 🌠]()**
+### **[interstellar 🌠](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#interstellar---prxy-games-apps)**
 
 ### **[astroid ☄]()**
 
