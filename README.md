@@ -5,5 +5,5 @@
 
 ##### just getting prepped for going back to school feelsbadman - nunya
 
-##### dope ass list too **(i reccomend)**
+##### dope ass list too **(i recommend)**
 ##### https://github.com/wea-f/ByePassHub/tree/main
