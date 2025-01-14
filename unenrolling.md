@@ -10,7 +10,7 @@
 
 ### [cryptosmite](https://github.com/nuunya/lol/blob/main/unenrolling.md#cryptosmite--newer-exp--unenrolling-your-device--follow-all-instructions-on-the-website)
 
-### [br1ck]()
+### [br1ck](https://github.com/nuunya/lol/blob/main/unenrolling.md#br1ck--unenrolling-your-device--follow-all-instructions-on-the-website)
 
 ### [badrecovery]()
 
