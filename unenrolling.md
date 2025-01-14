@@ -12,7 +12,7 @@
 
 ### [br1ck](https://github.com/nuunya/lol/blob/main/unenrolling.md#br1ck--unenrolling-your-device--follow-all-instructions-on-the-website)
 
-### [badrecovery]()
+### [badrecovery](https://github.com/nuunya/lol/blob/main/unenrolling.md#badrecovery--unenrolling-your-device--follow-all-instructions-on-the-website)
 
 ---
 
