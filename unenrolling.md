@@ -4,7 +4,7 @@
 ---
 ## table of contents
 
-### [SH1MMER]()
+### [SH1MMER](https://github.com/nuunya/lol/blob/main/unenrolling.md#sh1mmer--unenrolling-your-device--follow-all-instruction-on-the-website--patched-for-chrome-111)
 
 ### [e-halcyon]()
 
