@@ -8,7 +8,7 @@
 
 ### [e-halcyon](https://github.com/nuunya/lol/blob/main/unenrolling.md#e-halcyon--unenrolling-your-device--follow-all-instructions-on-the-website)
 
-### [cryptosmite]()
+### [cryptosmite](https://github.com/nuunya/lol/blob/main/unenrolling.md#cryptosmite--newer-exp--unenrolling-your-device--follow-all-instructions-on-the-website)
 
 ### [br1ck]()
 
