@@ -1,9 +1,8 @@
-# [lol || early stages](https://github.com/nuunya/lol)
-### status : v1
-### q: what is this?
-### a: just some simple github repos with exploits for ur school chromebook bcs why not yk?
+# [lol || home page](https://github.com/nuunya/lol)
+### school chromebook bypasses || pr0xies || games || exploits
 
-##### just getting prepped for going back to school feelsbadman - nunya
+i am **not responsible for the trouble you get into if you are caught using this in ur school**. ur decision was to use this repos to indicate flaws in ur school system and bypass past ur schools limits. i am not responsible of any of the links, **they are NOT made by me**. ur device, ur decisions.  
+
 
 ##### dope ass list too **(i recommend)**
 ##### https://github.com/wea-f/ByePassHub/tree/main
