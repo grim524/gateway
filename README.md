@@ -1,6 +1,16 @@
-# [lol || home page](https://github.com/gredful/lol)
-### pr0xies | games | exploits
+## [lol || home page](https://github.com/gredful/lol)
+
+
+## pr0xies | games | exploits
 ---
+
+planned updates:
+- add more pr0xy links
+- start making lol website
+- new bypass folder(s)
+- ~~clean up readme~~
+---
+
 
 ## !! IMPORTANT NOTE !!
 i am **not responsible for the trouble you get into if you are caught using this in ur school**. ur decision was to use this repos to indicate flaws in ur school system and bypass past ur schools limits. i am not responsible of any of the links, **they are NOT made by me**. ur device, ur decisions.  
