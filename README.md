@@ -6,9 +6,9 @@
 
 planned updates:
 - add more pr0xy links
-- start making lol website
 - new bypass folder(s)
 - ~~clean up readme~~
+- ~~start making lolsite~~
 ---
 
 
