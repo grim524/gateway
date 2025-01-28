@@ -7,7 +7,7 @@
 planned updates:
 - add more pr0xy links
 - new bypass folder(s)
-- games folder / list
+- ~~games folder / list~~
 - ~~clean up readme~~
 - ~~start making lolsite~~
 ---
