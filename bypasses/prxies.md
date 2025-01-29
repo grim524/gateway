@@ -34,8 +34,19 @@
 ---
 
 ### emerald ❇ || prxy, games, apps
-#### links breaking || mid stability
-new links soon. all the links are breaking 😪
+#### links breaking for my district || stable
+https://nox.hervy.se/
+https://zeusssss.it4mortals.org/
+https://zeussss.it4mortals.org/
+https://zeusss.it4mortals.org/
+https://zeuss.it4mortals.org/
+https://zeus.it4mortals.org/
+https://plswork.scarboroughgymelites.ca/
+https://learning4.medscience.cl/
+https://raringancs2kyokumefato.easterndns.com/
+https://test.vonar.ch/
+https://xn--fdbaad1jbbbwcc7a4eya2ae9a1iqa.jodymaroni.com/
+https://illusions-is-cool.spacetechnology.net/
 
 ### rammerhead 🦈 || browser prxy
 #### links from dec 25 || stable
