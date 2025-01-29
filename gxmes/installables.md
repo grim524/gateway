@@ -19,3 +19,7 @@ not adding any malicious links
 only my personal google drive links to download.
 
 feel free to check the src, it is open. no malware dumb shit or whateva
+
+
+### minecraft (eaglercraft) | perma
+[download](https://drive.google.com/file/d/1yy9OTEaCI2b_SNhp4dwgRNX8_G1tMAvc/view?usp=sharing) <br>
