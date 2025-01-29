@@ -19,3 +19,5 @@ i am **not responsible for the trouble you get into if you are caught using this
 updates **frequently,** dont panic if something doesnt work.
 
 [mit license](https://github.com/gredful/lol/blob/main/LICENSE) <br>
+
+some links from **[this](https://github.com/wea-f/ByePassHub/tree/main)** dope ass list
