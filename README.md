@@ -1,4 +1,4 @@
-## [lol || home page](https://github.com/gredful/lol)
+## [gateway || home page](https://github.com/gredful/lol)
 ## make sure to star this repos if you like it ! greatly appreciated ^^
 
 ### pr0xies | games | exploits
