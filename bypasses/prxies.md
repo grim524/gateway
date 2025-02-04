@@ -1,4 +1,4 @@
-# haha hey welcome to the official first .md of [*lol*](https://github.com/nuunya/lol) 
+# haha hey welcome to the official first .md of [*gateway*](https://github.com/nuunya/lol) 
 ### q: what are proxies?
 ### yap: proxies are simple to describe whenever one is trying to uncover the flaws of ur school computer.
 ### a: a proxy server is essentially a computer inside of ur computer on the internet that has an ip address of its own, and not ur schools ip address.
