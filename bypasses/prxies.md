@@ -1,5 +1,6 @@
 ### haha hey welcome to the official first .md of [*gateway*](https://github.com/nuunya/lol) 
 
+---
 
 ### table of contents for lazy people
 ---
