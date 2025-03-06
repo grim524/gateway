@@ -1,7 +1,7 @@
 # haha hey welcome to the official first .md of [*gateway*](https://github.com/nuunya/lol) 
 ---
 
-## table of contents for lazy people
+### table of contents for lazy people
 ---
 ### **[emerald ❇](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#emerald---prxy-games-apps)**
 
