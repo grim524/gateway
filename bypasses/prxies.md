@@ -2,7 +2,7 @@
 ---
 
 ### table of contents for lazy people
----
+
 ### **[emerald ❇](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#emerald---prxy-games-apps)**
 
 ### **[rammerhead 🦈](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#rammerhead---browser-prxy)**
