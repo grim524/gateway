@@ -1,10 +1,6 @@
 # haha hey welcome to the official first .md of [*gateway*](https://github.com/nuunya/lol) 
-### q: what are proxies?
-### yap: proxies are simple to describe whenever one is trying to uncover the flaws of ur school computer.
-### a: a proxy server is essentially a computer inside of ur computer on the internet that has an ip address of its own, and not ur schools ip address.
-##### **(if u cant understand that atleast a little bit**
-##### **please dont come near me bcs i will lose my sanity as u ask me what it means)**
 ---
+
 # table of contents for lazy people
 ---
 ### **[emerald ❇](https://github.com/nuunya/lol/blob/main/bypasses/prxies.md#emerald---prxy-games-apps)**
@@ -34,22 +30,22 @@
 ---
 
 ### emerald ❇ || prxy, games, apps
-#### links breaking for my district || stable
-https://nox.hervy.se/
-https://zeusssss.it4mortals.org/
-https://zeussss.it4mortals.org/
-https://zeusss.it4mortals.org/
-https://zeuss.it4mortals.org/
-https://zeus.it4mortals.org/
-https://plswork.scarboroughgymelites.ca/
-https://learning4.medscience.cl/
-https://raringancs2kyokumefato.easterndns.com/
-https://test.vonar.ch/
-https://xn--fdbaad1jbbbwcc7a4eya2ae9a1iqa.jodymaroni.com/
-https://illusions-is-cool.spacetechnology.net/
+#### links fully working now mar 6 || stable
+https://nox.hervy.se/ <br>
+https://zeusssss.it4mortals.org/ <br>
+https://zeussss.it4mortals.org/ <br>
+https://zeusss.it4mortals.org/ <br>
+https://zeuss.it4mortals.org/ <br>
+https://zeus.it4mortals.org/ <br>
+https://plswork.scarboroughgymelites.ca/ <br>
+https://learning4.medscience.cl/ <br>
+https://raringancs2kyokumefato.easterndns.com/ <br>
+https://test.vonar.ch/ <br>
+https://xn--fdbaad1jbbbwcc7a4eya2ae9a1iqa.jodymaroni.com/ <br>
+https://illusions-is-cool.spacetechnology.net/ <br>
 
 ### rammerhead 🦈 || browser prxy
-#### links from dec 25 || stable
+#### links from mar 6 || stable
 https://gg.mom-dad-wtf-su-s.cstang.hk/     <br>
 https://donatetoafrica.raisepeaceinunity.com/     <br>
 https://help.smartknb.com/     <br>
